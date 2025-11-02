@@ -1,1 +1,1 @@
-Education purpose use only for college projects
+Education purpose used only for persoal projects
